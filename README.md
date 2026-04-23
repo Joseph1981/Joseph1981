@@ -24,6 +24,6 @@ I run **[MooMoo Ranch (삼수령 무무목장)](https://moomooranch.net)** in Ta
 
 ### Elsewhere
 
-🌐 [moomooranch.net](https://moomooranch.net) &nbsp;·&nbsp; 📺 [YouTube — 삼수령 무무목장](https://youtube.com/@moomooranch) &nbsp;·&nbsp; 📷 [Instagram @moomoo.ranch](https://instagram.com/moomoo.ranch)
+🌐 [moomooranch.net](https://moomooranch.net) &nbsp;·&nbsp; 📺 [YouTube @moomoo_grange](https://www.youtube.com/@moomoo_grange) &nbsp;·&nbsp; 📷 [Instagram @moomoo.ranch](https://instagram.com/moomoo.ranch)
 
 <sub>*"하나님이 생명을 구원하시려고 나를 당신들 앞서 보내셨나이다." — 창세기 45:5*</sub>
